@@ -1,4 +1,4 @@
-## Hello my name is Eternal i like make mods to TL PRO
+## Hello my name is Eternal a mod maker to TL PRO
 
 ♦️: My Actual Project: Hardges
 
