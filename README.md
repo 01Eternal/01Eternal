@@ -1,6 +1,7 @@
-## Hello my name is Eternal a mod maker to TL PRO
+## Hello my name is Eternal I am modder of TL PRO!
 
 ♦️: My Actual Project: Hardges
+📑: Contact me: Luandacostaflorencio@gmail.com
 
 ![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=01Eternal&show_icons=true&theme=dracula) 
 
